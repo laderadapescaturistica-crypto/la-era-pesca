@@ -1,7 +1,6 @@
-[google9d7c077549f4d572 (2).html](https://github.com/user-attachments/files/26416342/google9d7c077549f4d572.2.html)
-# 🌿 La Eras de Ipesca Turística
+# 🌿 La Eras de Pesca Turística
 
-Bienvenido a **La Eras de Ipesca Turística**, un espacio natural donde la tranquilidad, la pesca y la naturaleza se unen para brindarte una experiencia inolvidable.
+Bienvenido a **La Eras de Pesca Turística**, un espacio natural donde la tranquilidad, la pesca y la naturaleza se unen para brindarte una experiencia inolvidable.
 
 ---
 
@@ -36,7 +35,8 @@ Emprendedora comprometida con ofrecer un lugar acogedor y lleno de vida.
 ## 🌍 Sitio web
 
 Puedes ver la página aquí:  
-👉 https://TU-USUARIO.github.io/la-eras-ipesca/
+👉 https://laderadapescaturistica-crypto.github.io/la-eras-ipesca/
+[google9d7c077549f4d572 (2).html](https://github.com/user-attachments/files/26416342/google9d7c077549f4d572.2.html)
 
 
 ---
