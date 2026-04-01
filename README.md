@@ -37,8 +37,6 @@ Emprendedora comprometida con ofrecer un lugar acogedor y lleno de vida.
 Puedes ver la página aquí:  
 👉 https://laderadapescaturistica-crypto.github.io/la-eras-ipesca/
 
-*(Reemplaza TU-USUARIO por tu usuario de GitHub)*
-
 ---
 
 ## 🛠️ Tecnologías utilizadas
