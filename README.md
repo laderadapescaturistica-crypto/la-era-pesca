@@ -1,0 +1,76 @@
+# 🌿🎣 La Eras de Pesca Turística
+### *Donde la naturaleza se vive y la pesca se disfruta*
+
+---
+
+## 🌄 Bienvenido
+
+Descubre un lugar mágico donde el agua, el aire puro y la tranquilidad se unen para brindarte una experiencia inolvidable.
+
+💚 En **La Eras de Pesca Turística**, no solo vienes a pescar…  
+✨ vienes a desconectarte, relajarte y vivir momentos únicos.
+
+---
+
+## 🎣 ¿Qué encontrarás?
+
+🌊 **Pesca en lagos naturales**  
+Disfruta de la emoción de la pesca en un entorno tranquilo y natural.
+
+🌳 **Turismo natural**  
+Respira aire puro y relájate rodeado de paisajes increíbles.
+
+👨‍👩‍👧‍👦 **Planes familiares**  
+Un lugar perfecto para compartir con quienes más quieres.
+
+📸 **Espacios únicos**  
+Ideales para descansar, tomar fotos y crear recuerdos inolvidables.
+
+---
+
+## 🌟 Nuestra esencia
+
+Este proyecto nace del amor por la naturaleza y el deseo de ofrecer un espacio auténtico, acogedor y lleno de vida.
+
+👩‍💼 Liderado por:  
+**Diana Andrade**
+
+---
+
+## 🌐 Visita nuestra página
+
+🚀 Haz clic aquí para conocer más:  
+👉 https://laderadapescaturistica-crypto.github.io/la-eras-ipesca/
+
+
+---
+
+## 📲 Contáctanos
+
+¿Listo para tu próxima aventura?
+
+📱 WhatsApp: +57 317 362 7421 
+📍 Colombia  
+
+---
+
+## 💬 Frase que nos representa
+
+> *“La naturaleza te está llamando… ¿vas a responder?”* 🌿
+
+---
+
+## 🚀 Objetivo
+
+Impulsar el turismo local y dar a conocer un espacio natural donde las personas puedan desconectarse del estrés y reconectarse con la vida.
+
+---
+
+## ⭐ Apoya este proyecto
+
+Si te gusta este emprendimiento:
+- Dale ⭐ al repositorio  
+- Comparte la página  
+- ¡Visítanos!  
+
+---
